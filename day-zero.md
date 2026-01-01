@@ -40,5 +40,5 @@ I picked this song for a number of reasons:
 >The catchy instrumentals and repeating lines of "Did I Tell You That I Miss You?" imply that I have been apart from my partner for sometime, which is bound to happen this year. Apart from this, the song is genuinely a chill and could definitely be pictured to be playing behind some scrolling credits.
 
 ## Speedrun Mode
-<a href="https://open.spotify.com/track/2B3D38o8GaXnZo6DnTyZ2m?si=27d7f37b34c04a51"><img src="https://i.scdn.co/image/ab67616d0000b273e65b2a729914445d34777d23" width="200"></a>
+<a href="https://open.spotify.com/track/2B3D38o8GaXnZo6DnTyZ2m?si=27d7f37b34c04a51"><img src="https://i.scdn.co/image/ab67616d0000b273e65b2a729914445d34777d23" width="200"></a>\
 I hope you enjoy this lovely rock and note-heavy guitar song :)
