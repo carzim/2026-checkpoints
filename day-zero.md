@@ -35,7 +35,7 @@ I picked this song for a number of reasons:
 >Also, the lyrics are somewhat sad/mellow which adds to the changes in the relationship with my love and the time that we will have to spend apart this year.
 
 **Credit Song: Did I Tell You That I Miss You?**\
-<a href="https://open.spotify.com/track/3qeFjtPJ1lIRKDTB5DZWpt?si=7c222b30952c4743"><img src="" width="200"></a>
+<a href="https://open.spotify.com/track/3qeFjtPJ1lIRKDTB5DZWpt?si=7c222b30952c4743"><img src="https://i.scdn.co/image/ab67616d00001e028cd863bf79205b45764cbcd8" width="200"></a>
 >Why?\
 >The catchy instrumentals and repeating lines of "Did I Tell You That I Miss You?" imply that I have been apart from my partner for sometime, which is bound to happen this year. Apart from this, the song is genuinely a chill and could definitely be pictured to be playing behind some scrolling credits.
 
