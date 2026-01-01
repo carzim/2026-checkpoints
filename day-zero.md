@@ -18,4 +18,4 @@ I picked this song for a number of reasons:
 >3. **Love**: The possessiveness and imagery depicts the feelings I have with my love.
 
 ## Side Quest
-<img src="https://i.scdn.co/image/ab67616d0000b2737c6df2352d3e0c8dc20e8d5d" width="200" />
+<a href="https://open.spotify.com/track/5pLbM4PU1wZyMvoQyEAorp?si=633eb33f8d664a3c"><img src="https://i.scdn.co/image/ab67616d0000b2737c6df2352d3e0c8dc20e8d5d" width="200"></a>
