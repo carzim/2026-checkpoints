@@ -1,4 +1,4 @@
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/d4bf5a4b-27c0-409f-bea2-a3422df69b79" /># Day 0 (Tutorial)
+# Day 0 (Tutorial)
 ![Checkpoint for Day 0](https://cdn.discordapp.com/attachments/1455835990831927296/1455835991502749792/Checkpoint_Quests_20251230_220733_0000.png?ex=69577dec&is=69562c6c&hm=60e99bced9d3b657be3ba6e847c43dd32ac5f40b69958ca1be9f6014386caccd&)
 >Checkpoint for Day 0 (31st December):
 >1. Main Quest\
